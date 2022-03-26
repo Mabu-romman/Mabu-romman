@@ -1,4 +1,4 @@
-# Hi, My name is Mohammad Abu-Romman
+# Hi, my name is Mohammad Abu-Romman
 
 
 - 👀 I’m interested in ...
